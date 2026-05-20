@@ -6,9 +6,9 @@ Teacher List
 202-C List
 1. Idria, Tracy Allen P.
 2. Golosino, Atheena Ghabriell M.
-3. Glorioso, Arizza Mae D.
+3. 
 4.
-5. 
+5. Glorioso, Arizza Mae D.
 6. 
 7. 
 8. 
